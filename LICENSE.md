@@ -1,4 +1,4 @@
-#  
+#  Experience berry avenue rp like never before with instant berry avenue rp Script, the #1 Script. Includes auto-upgrade and anti-ban for unbeatable
 
 
 
